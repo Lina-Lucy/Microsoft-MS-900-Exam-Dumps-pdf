@@ -1,5 +1,4 @@
 # Microsoft-MS-900-Exam-Dumps-pdf
-### **GitHub Article: MS-900 Dumps PDF – Master Microsoft 365 Fundamentals with Certifiedumps** 🎯  
 
 # 🚀 Ace the Microsoft MS-900 Exam with Certifiedumps 📚  
 
